@@ -1,0 +1,1 @@
+# compare-shop-privacy-policy
